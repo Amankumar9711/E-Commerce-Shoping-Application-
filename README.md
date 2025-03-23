@@ -1,14 +1,5 @@
 # E-Commerce-Shoping-Application-
 
-hfgigrdh
 
-ANZGVSHHBHBYSUKHDYG
-
-AKJEVTEDYCTDHCJKHJEC
-
-
-AMAN.
-KUMAR .
-CSE
 
 
